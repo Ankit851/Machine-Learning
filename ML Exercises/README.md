@@ -2,4 +2,4 @@
 
 
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Fgigabytes&psig=AOvVaw0tDw7a1RPZTFkNUQUWUDRq&ust=1624126724162000&source=images&cd=vfe&ved=0CAoQjRxqFwoTCPiD-YDmofECFQAAAAAdAAAAABAK
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.leadfeeder.com%2Fblog%2Fai-machine-learning-b2b-2020%2F&psig=AOvVaw0tDw7a1RPZTFkNUQUWUDRq&ust=1624126724162000&source=images&cd=vfe&ved=0CAoQjRxqFwoTCPiD-YDmofECFQAAAAAdAAAAABAR
