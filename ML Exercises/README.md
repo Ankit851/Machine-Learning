@@ -2,4 +2,4 @@
 
 
 
-https://www.leadfeeder.com/blog/ai-machine-learning-b2b-2020/
+![image](https://www.leadfeeder.com/blog/ai-machine-learning-b2b-2020/)
